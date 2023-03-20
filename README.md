@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **angelosepaminonda1@gmail.com**
 
-- 📄 Know about my experiences [https://resume.io/r/lmTHu73sd](https://resume.io/r/lmTHu73sd)
+- 📄 Check out my website [www.angelosepaminonda.com](www.angelosepaminonda.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
